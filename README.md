@@ -1,0 +1,1 @@
+# Affiliate-Copywriter-Engine-v1.0
